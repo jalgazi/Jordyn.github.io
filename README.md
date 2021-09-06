@@ -1,2 +1,2 @@
 # Jordyn.github.io
-Jordyn Bat-Mitzvaj
+Jordyn Bat-Mitzvah
